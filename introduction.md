@@ -1,1 +1,1 @@
-![Original Comic Map](https://user-images.githubusercontent.com/89549006/146460333-f3bfb50c-6cc1-4b36-8b3a-4b4a6c7c5c71.jpg)
+![Original Comic Map](https://user-images.githubusercontent.com/89549006/146461283-522308d0-a0b8-4a7e-8b14-1ff94814f2ad.jpg)
